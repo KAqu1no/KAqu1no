@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KAqu1no
 - 👀 I’m interested in ... Art, Technology, Martial Arts, Travel, Music and all their forms.
-- 🌱 I’m currently learning ... Computer Science
+- 🌱 I’m currently learning ... Information Technologies & Computer Sciences
 - 💞️ I’m looking to collaborate on ... Beginner friendly projects
 - 📫 How to reach me ... via PM
 
