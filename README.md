@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KAqu1no - Projects held PRIVATELY unless requested 
+- 👋 Hi, I’m @KAqu1no - Projects held PRIVATELY unless requested  :)
 - 👀 I’m interested in ... Art, Mental Health, Technology, Community, Reading, Tinkering and the 'Great Outdoors'
 - 🌱 I’m currently learning ... Information Technologies & Computer Sciences
 - 💞️ I’m looking to collaborate on ... Beginner friendly projects
