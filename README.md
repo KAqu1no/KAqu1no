@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KAqu1no
-- 👀 I’m interested in ... Art, Technology, Martial Arts, Travel, Music and all their forms.
+- 👀 I’m interested in ... Art, Mental Health, Technology, Community, Reading, Tinkering and the 'Great Outdoors'
 - 🌱 I’m currently learning ... Information Technologies & Computer Sciences
 - 💞️ I’m looking to collaborate on ... Beginner friendly projects
 - 📫 How to reach me ... via PM
